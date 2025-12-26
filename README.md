@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Jakub Jakobsche
 - 👀 I’m interested in computer science
 - 🌱 I’m currently learning programming langueges
-- 📫 How to reach me: cotact me via email: jakub.jaki@wp.pl
+- 📫 How to reach me: cotact me via email: jakubjaki55@gmail.com
 - 😄 Pronouns: him/his
 
 
